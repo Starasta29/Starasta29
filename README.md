@@ -3,7 +3,7 @@
 
 - 🌍 I'm based in **Cluj-Napoca**
 
-- 💬 Contact: **dutkasalexis@gmail.com**
+- 💬 Contact: **dutkasalexis29@yahoo.com**
 
 
 <p align="left">
